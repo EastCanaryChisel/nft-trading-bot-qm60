@@ -1,4 +1,4 @@
-# 
+# Enhance your NFT trading with advanced nft trading bot | cross-market-arbitrage + wash-trading-detection, the #1 nft trading bot. Includes cross-market-arbitrage and
 
 
 
